@@ -1,1 +1,0 @@
-# lindsey-rix.github.io
